@@ -1,2 +1,2 @@
-# Rainykazimir.github.io
-This is my website for anything i decide to use it for but for now ill use it for my links and stuff
+# Cheeto's Website
+Wassup I make wallpapers if you want them you are free to download them
