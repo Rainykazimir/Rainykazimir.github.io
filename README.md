@@ -1,2 +1,3 @@
 # Cheeto's Website
-Wassup I make wallpapers if you want them you are free to download them
+I do things
+I'm taking a break maybe in a month it will be updated next
